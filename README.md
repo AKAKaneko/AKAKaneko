@@ -3,18 +3,16 @@
 
 ### ╰ welcome > ๑♡°⸙͎
 
-### ♯what is a summer?! :ferris_wheel:
+### ♯How are you?! :ferris_wheel:
 
 ### :thought_balloon: ↯ hey.hey :beetle: *ૢ✧
 
- ###  :telescope: ’’ stop, :palm_tree:
-
-###   ☓ love is love bae :cupid:
+ ###  :telescope: ’’ Python,java,C,HTML,CSS,LUA :palm_tree:
 
 ###   :o: *. carousel, ha > :carousel_horse:
 
-###        » August, 2018 `୭̥.. :sparkles: !¡
+###        » June, 2022 `୭̥.. :sparkles: !¡
 
- ###       ੈ♡‧₊˚ ❛ bem vindos.⌇ :fallen_leaf: !
+ ###       ੈ♡‧₊˚ ❛ Thank you for the attention.⌇ :fallen_leaf: !
 
-   ###           ρᥲthᥱtiᥴ love
+   ###           Caneco
