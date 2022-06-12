@@ -14,5 +14,4 @@
 ###        » June, 2022 `୭̥.. :sparkles: !¡
 
  ###       ੈ♡‧₊˚ ❛ Thank you for the attention.⌇ :fallen_leaf: !
-
-   ###           Caneco
+###       ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
