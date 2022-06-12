@@ -1,16 +1,20 @@
-### Hi there 👋
+### ˀ :coffee: „ s u m a r y. . . ♡°୭
+### ╭─────────            
 
-<!--
-**AKAKaneko/AKAKaneko** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### ╰ welcome > ๑♡°⸙͎
 
-Here are some ideas to get you started:
+### ♯what is a summer?! :ferris_wheel:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### :thought_balloon: ↯ hey.hey :beetle: *ૢ✧
+
+ ###  :telescope: ’’ stop, :palm_tree:
+
+###   ☓ love is love bae :cupid:
+
+###   :o: *. carousel, ha > :carousel_horse:
+
+###        » August, 2018 `୭̥.. :sparkles: !¡
+
+ ###       ੈ♡‧₊˚ ❛ bem vindos.⌇ :fallen_leaf: !
+
+   ###           ρᥲthᥱtiᥴ love
