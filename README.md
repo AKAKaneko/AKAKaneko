@@ -8,7 +8,7 @@
 ### :thought_balloon: ↯ hey.hey :beetle: *ૢ✧
 
  ###  :telescope: ’’ Python,java,C,HTML,CSS,LUA :palm_tree:
-[https://www.youtube.com/channel/UCRSQCOkYA6QbrFwki8eSc2Q]Yt(url)
+
 ###   :o: *. carousel, ha > :carousel_horse:
 
 ###        » June, 2022 `୭̥.. :sparkles: !¡
