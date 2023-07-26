@@ -11,7 +11,7 @@
 
 ###   :o: *. carousel, ha > :carousel_horse:
 
-###        » June, 2022 `୭̥.. :sparkles: !¡
+###        » June, 2023 `୭̥.. :sparkles: !¡
 
  ###       ੈ♡‧₊˚ ❛ Thank you for the attention.⌇ :fallen_leaf: !
 ###       ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
